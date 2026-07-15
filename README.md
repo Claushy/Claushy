@@ -1,5 +1,5 @@
 # 💫 About Me:
-web developer, looking for a job, student, 
+web developer, student, 
 
 
 ## 🌐 Socials:
